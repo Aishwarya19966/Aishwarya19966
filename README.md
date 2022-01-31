@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Aishwarya19966
-- 👀 I’m interested in electronic
+- 👀 I’m interested in Electronics
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me akabadi1996@gmail.com
